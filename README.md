@@ -1,0 +1,2 @@
+# premium-trug-bend-001-sussex-trug-steam-bend-rim-c
+Tracking steam bend projects, rim measurements, and wood prep notes across scattered documents is killing your craft momentum. The Sussex Trug &amp; Steam Bend Rim Craft Lab consolidates your entire trug-building workflow into one intelligent Notion workspace.  This template eliminates guesswork by organizing steam bend timings, rim curvature data, woo
